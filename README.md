@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **vedantdadurwade.vd@gmail.com**
 
-- 📄 Know about my experiences [here]([https://drive.google.com/](https://drive.google.com/file/d/13-ctsYin4cMBczn6tRXnY2m3jjCNVbYu/view?usp=sharing))
+- 📄 Know about my experiences [here](https://drive.google.com/](https://drive.google.com/file/d/13-ctsYin4cMBczn6tRXnY2m3jjCNVbYu/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
